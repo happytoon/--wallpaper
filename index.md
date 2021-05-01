@@ -1,5 +1,5 @@
 欢迎来到伽罗的个人主页
 
 联系技术支持
-乐乎社区：https：// //akasi68431.lofter.com
+乐乎社区：akasi68431.lofter.com
 公众对外QQ：2083796595
